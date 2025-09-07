@@ -72,6 +72,6 @@ We may update this Privacy Policy from time to time. Updates will be posted here
 If you have questions or concerns about this Privacy Policy, please contact:  
 
 **David Sopinka**  
-Email: support@yourdomain.com  
+Email: dsopinka@gmail.com  
 
 ---
